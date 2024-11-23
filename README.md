@@ -1,3 +1,1 @@
 # Mou-Portfolio
-
-ABOUT MEG
